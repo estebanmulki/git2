@@ -1,5 +1,5 @@
 Mi CV
 
-Este es mi curriculum vitae y es hermoso.
+Me gusta Soda Stereo.
 
 2015. Esteban Mulki
